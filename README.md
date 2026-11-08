@@ -226,4 +226,4 @@ PlayStation Now is available for free download with all features and updates inc
 Get started with PlayStation Now today and dive into an endless world of gaming possibilities!
 
 ---
-**Last updated:** 2026-11-08 16:51:08 UTC
+**Last updated:** 2026-11-08 20:52:54 UTC
